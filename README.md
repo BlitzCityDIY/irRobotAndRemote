@@ -12,3 +12,9 @@ https://youtu.be/6JI83SIRhTM
 
 https://youtu.be/Heaa0BWK_Mk
 
+https://youtu.be/sYn7sI7BDCw
+
+Fusion 360 Public Links
+
+Remote Main Body: https://a360.co/2XNJTZd
+LED Cat Faceplate: https://a360.co/2WIM9Eo
